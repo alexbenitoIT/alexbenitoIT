@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning Cybersecurity Essentials
 - 💬 Ask me about legacy hardware in education environments
 - 📫 How to reach me: abenito@dale.k12.ok.us
-- ⚡ Fun fact: my main in Smash Bros Melee is Samus
+- ⚡ Fun fact: Samus is my main in Smash Bros Melee
 
 > That's for him to know and for you to guess, won’t be caught in no suit vest at no computer desk — MF DOOM
